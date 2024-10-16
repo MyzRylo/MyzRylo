@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Myz!!
+- 👀 I’m interested in arts and coding
+- 🌱 I’m currently learning how to code
+- 📫 How to reach me: @itzmythicfrost on discord!
+- 😄 Pronouns: She/Her
+- ⚡ Fun facts: idk lol
